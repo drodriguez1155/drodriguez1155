@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @drodriguez1155
+- 👀 I’m interested in snowboarding on my free time, going to the gym, and watching anime. 
+- 🌱 I’m currently studying for my degree in Management Information Systems. 
+- 📫 How to reach me: drodriguez155@unm.edu
